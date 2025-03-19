@@ -1,7 +1,7 @@
 
 # Pedro Henrique Macedo
 
-Olá. Tenho 27 anos. Sou formado em Engenharia de Produção, e nesse ano de 2025, resolvi investir em uma nova formação: Análise e Desenvolvimento de Sistemas. 
+Olá. Tenho 28 anos. Sou formado em Engenharia de Produção, e nesse ano de 2025, resolvi investir em uma nova formação: Análise e Desenvolvimento de Sistemas. 
 
 Tenho sempre vontade de aprender cada vez mais e sempre me dá alegria ao conseguir realizar coisas novas. Espero que isso nunca se perca ao longo da minha vida. 
 
